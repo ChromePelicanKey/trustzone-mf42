@@ -1,4 +1,4 @@
-
+ultra-secure PrivateVPN Connector | free-trial + DNS-leak-protection offers the most advanced PrivateVPN connector, with free-trial and DNS-leak-protection. Ideal for users who
 
 
 
